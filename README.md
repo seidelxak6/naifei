@@ -3,7 +3,7 @@ Netflix作为全球领先的流媒体平台，凭借海量的电影、电视剧�
 
 省流推荐: 目前使用下来还是历史悠久的奈飞小铺最靠谱，其他不是半路跑路就是极限拉扯，想省时省心就选择吧
 
-## [直达奈飞账号购买合租平台](https://metshop.cn?referrerUserNo=MTUNMDJM3YUF)  
+## [直达奈飞账号购买合租平台](https://ihezu.fans/cWTk6p)  优惠码:coupon35
 
 ## 使用Netflix的基本条件
 
@@ -29,14 +29,14 @@ Netflix是一个会员订阅制平台，只有通过付费订阅才能观看平�
 
 ## Netflix账号购买渠道
 
-### 1\. [通过电商平台购买](https://metshop.cn?referrerUserNo=MTUNMDJM3YUF)
+### 1\. [通过电商平台购买](https://ihezu.fans/cWTk6p) 优惠码:coupon35
 
 许多购物平台提供Netflix账号的购买服务，通常价格比较便宜，约20-30元左右。这些账号通常来自礼品卡或正常订阅。
 
 - **优点：**价格透明，购买流程简单，支持多种支付方式。
 - **缺点：**账号来源不明，稳定性难以保障，可能是“月抛账号”，易掉线或被封。
 
-### 2\. [通过拼车合租平台](https://metshop.cn?referrerUserNo=MTUNMDJM3YUF)
+### 2\. [通过拼车合租平台](https://ihezu.fans/cWTk6p) 优惠码:coupon35
 
 拼车平台的基本原理是多个用户共同分摊一个账号的费用，大家可以使用独立的个人资料，互不干扰。拼车平台提供的账号一般来源正规，稳定性较好。
 
